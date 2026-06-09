@@ -1,4 +1,4 @@
-# 
+# Melhor Quicken fluxo de trabalho para Mac OS | Oficial Quicken fluxo de trabalho para PC Windows. Com rastreamento de investimentos e rastreamento em tempo real — otimizado para máximo desempenho em cada plataforma.
 
 
 
